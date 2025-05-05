@@ -1,4 +1,4 @@
-# 📺 Easy Guide: Install and Use AtlasPro on Smart TV, Android & More
+# 📺 Easy Guide: Install and Use Atlas Pro on tv  on Smart TV, Android & More
 
 Welcome to your step-by-step guide to installing and using **AtlasPro on TV** across all your favorite devices, including Smart TVs, Android boxes, mobile phones, and more.
 
